@@ -7,7 +7,6 @@
 
 - 📫 You can contact me anytime at **nathan.parisod@heig-vd.ch**
 
-<h3 align="left">Connect with me:</h3>
 <p align="left">
 </p>
 
